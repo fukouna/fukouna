@@ -1,7 +1,8 @@
 ![tumblr_ad70cc16f83b5f90cf48394f97d82aad_39448c78_2048](https://github.com/user-attachments/assets/a88811d1-3130-403b-a938-857ed7454b56)
 
 hi im luther i like tf2 and helmet party (shoutout to sebastian for getting me into the ship)
-uhh pls read my rentry
+
+uhh pls read my rentry to get to know more abt me, or js talk to me when im online!! ^_^
 <!--
 **fukouna/fukouna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
