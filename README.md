@@ -1,5 +1,4 @@
-![heavy and pyro](https://github.com/user-attachments/assets/4b4508b4-64ba-43de-b22e-2b4e4afe0a3f)
-
+<img width="735" height="311" alt="175816822139725664" src="https://github.com/user-attachments/assets/aebb5384-5ed3-479d-946b-f594b895404f" />
 
 hi im luther i like tf2 and other stuff im cool
 
