@@ -1,6 +1,7 @@
-![tumblr_ad70cc16f83b5f90cf48394f97d82aad_39448c78_2048](https://github.com/user-attachments/assets/a88811d1-3130-403b-a938-857ed7454b56)
+![heavy and pyro](https://github.com/user-attachments/assets/4b4508b4-64ba-43de-b22e-2b4e4afe0a3f)
 
-hi im luther i like tf2 and helmet party (shoutout to sebastian for getting me into the ship)
+
+hi im luther i like tf2 and other stuff im cool
 
 uhh pls read my rentry to get to know more abt me, or js talk to me when im online!! ^_^
 <!--
