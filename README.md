@@ -1,6 +1,6 @@
 <img width="735" height="311" alt="175816822139725664" src="https://github.com/user-attachments/assets/aebb5384-5ed3-479d-946b-f594b895404f" />
 
-hi im luther i like tf2 and other stuff im cool
+hi im luther im 18 (16+ int) i like tf2 and other stuff im pretty awesome
 
 uhh pls read my rentry to get to know more abt me, or js talk to me when im online!! ^_^
 <!--
