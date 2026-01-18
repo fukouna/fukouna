@@ -1,6 +1,7 @@
-<img width="735" height="311" alt="175816822139725664" src="https://github.com/user-attachments/assets/aebb5384-5ed3-479d-946b-f594b895404f" />
+![2040DCF0-8EFB-44C2-8582-70BA1FFD51C3](https://github.com/user-attachments/assets/847d08a9-bbdf-4067-94e1-95d0fe229565)
 
-hi im luther i like tf2 and other stuff im pretty awesome
+
+hi im macca i like the beatles and other stuff im pretty awesome
 
 uhh pls read my rentry to get to know more abt me, or js talk to me when im online!! ^_^
 <!--
