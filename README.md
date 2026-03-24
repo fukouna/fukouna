@@ -1,7 +1,6 @@
-![2040DCF0-8EFB-44C2-8582-70BA1FFD51C3](https://github.com/user-attachments/assets/847d08a9-bbdf-4067-94e1-95d0fe229565)
+![ -24](https://github.com/user-attachments/assets/af9fac5d-dedb-4b73-a716-0e02c15bc6af)
 
-
-hi im macca i like the beatles and other stuff im pretty awesome
+hi im neil i like the beatles and other stuff im pretty awesome
 
 uhh pls read my rentry to get to know more abt me, or js talk to me when im online!! ^_^
 <!--
