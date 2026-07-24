@@ -1,6 +1,7 @@
-![ -24](https://github.com/user-attachments/assets/af9fac5d-dedb-4b73-a716-0e02c15bc6af)
+<img width="736" height="318" alt="blur_edges" src="https://github.com/user-attachments/assets/5ec65eca-d224-4bd7-ab10-e768f162c70f" />
+(art by saprozoicworm on tumblr)
 
-hi im neil i like the beatles and other stuff im pretty awesome
+hi im george i like sp, the beatles and other stuff im pretty awesome
 
 uhh pls read my rentry to get to know more abt me, or js talk to me when im online!! ^_^
 <!--
